@@ -6,7 +6,9 @@
 - I love singing 🎤🎶
 
 
-🧊 **3D Tools (Main)**
+---
+
+## 🧊 3D Tools
 
 ![Maya](https://img.shields.io/badge/Maya-37A5CC?style=for-the-badge&logo=autodesk&logoColor=white)
 ![ZBrush](https://img.shields.io/badge/ZBrush-000000?style=for-the-badge)
