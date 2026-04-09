@@ -1,5 +1,10 @@
 # 💫 About Me:
-🔭 I’m currently working as a 2D/3D generalist artist, creating animations and editing short-form videos, along with branding, packaging, graphic design, and infographics  <br>👯 I’m looking to collaborate on creative projects involving animation, motion design, and visual content  <br>🤝 I’m open to learning more about advanced 3D workflows and improving my animation skills  <br>🌱 I’m currently exploring new techniques in motion design and 3D rendering  <br>💬 Ask me about animation, video editing, and graphic design  <br>⚡ Fun fact: I enjoy turning simple ideas into engaging visuals through design and animation
+🔭 I’m currently working as a 2D/3D generalist artist, creating animations and editing short-form videos, along with branding, packaging, graphic design, and infographics  <br>👯 I’m looking to collaborate on creative projects involving animation, motion design, and visual content  <br>🤝 I’m open to learning more about advanced 3D workflows and improving my animation skills  <br>🌱 I’m currently exploring new techniques in motion design and 3D rendering  <br>💬 Ask me about animation, video editing, and graphic design  <br>⚡ Fun fact: 
+
+Coffee is my creative sidekick ☕🎬
+I love playing games when I can think properly 🎮
+I play guitar, piano, and drums to de-stress 🎹🥁🎸
+I love singing 🎤🎶
 
 
 ## 🌐 Socials:
